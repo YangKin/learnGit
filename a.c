@@ -1,0 +1,7 @@
+nihao
+
+woshiming
+
+nisi
+
+quit
